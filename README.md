@@ -11,6 +11,8 @@
  જ⁀➴୨ৎ : Axel .
  
  જ⁀➴୨ৎ : Castor .
+
+ જ⁀➴୨ৎ : Xaiver .
  
  જ⁀➴୨ৎ : + more will be added !
  
