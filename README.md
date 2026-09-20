@@ -1,6 +1,6 @@
 # People-DNI
 
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/eb907d71-2dc9-424d-8aa2-b32cc5ca5cb7" />
+<img width="498" height="281" alt="charlie-alastor" src="https://github.com/user-attachments/assets/526ffeb2-b657-45cc-b599-b0ad1e4dc6cb" />
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
@@ -12,8 +12,14 @@
  
  જ⁀➴୨ৎ : Castor .
 
- જ⁀➴୨ৎ : Xaiver .
+ જ⁀➴୨ৎ : Ellie .
+
+ જ⁀➴୨ৎ : Isabeellam .
+
+ જ⁀➴୨ৎ : Angeldustlover107 .
  
+ જ⁀➴୨ৎ : Kursein + Her goons .
+
  જ⁀➴୨ৎ : + more will be added !
  
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
